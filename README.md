@@ -1,1 +1,2 @@
-# paint-protection-Film-Services
+# Paint Protection Film Services
+You can expect the cost to put [paint protection film services](https://www.shellshockedwraps.com/) on the front of the car to be between $900 and $2500, depending on how many panels you want to be covered and the condition of your vehicle. If you want to protect your entire car, expect the cost of full body paint protection film is anywhere from $2,000 to $7,000. Yes. PPF is worth every cent. It's a transparent protective film that covers any painted surface of your vehicle's exterior, reducing the risk of paint damage. If you recently purchased a car, you'll most likely come across paint protection films or ceramic coatings as options to protect your car's paint. 
